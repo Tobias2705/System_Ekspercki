@@ -1,1 +1,1 @@
-# System_Regu-owy
+# System_Regulowy
